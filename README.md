@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @coding-wizard2009
+- 👋 Hi, I’m coding wizard😊😊
 - 👀 I’m interested in creation of webpages
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on creation of webpages
