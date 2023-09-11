@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @coding-wizard2009
-- 👀 I’m interested in cration of webpages
+- 👀 I’m interested in creation of webpages
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on creation of webpages
 - 📫 How to reach me on my g-mail account euniceibhaluobe@gmail.com.
